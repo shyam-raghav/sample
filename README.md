@@ -1,3 +1,3 @@
 # sample
-this is my first ones 
+this is my first ones.
 fuck u bitch
